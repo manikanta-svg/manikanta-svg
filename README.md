@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @manikanta-svg
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning in btech college
-- 💞️ I’m looking to collaborate on creativity
+- 💞️ I’m looking to collaborate on private company
 - 📫 How to reach me manixchaganti@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
