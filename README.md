@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @manikanta-svg
+- 👋 Hi, I’m @manikanta-mrtn
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning in btech college
 - 💞️ I’m looking to collaborate on private company
